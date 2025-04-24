@@ -24,7 +24,7 @@ _"I am neither fake nor false. I am simply me."_
 _feel free to int / c+h !_
 _usually offtab/afk , whispers appreciated for interactions ._
 
-_weirdos dni_
+_i block freely dont be a dickweed_
 
 ***strawpage wip . . .***
 
