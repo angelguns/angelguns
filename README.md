@@ -14,7 +14,10 @@ _"I am neither fake nor false. I am simply me."_
 
 
 
-***rei & asuka pilled .*** 
+*only tabuko fan ever i love her shes me*
+
+***rei & asuka kinnie .*** 
+
 
 <img src="https://github.com/user-attachments/assets/a44c3b92-235b-4a2e-af43-081cb39cf6ab" width="10%" height="10%"> 
 
